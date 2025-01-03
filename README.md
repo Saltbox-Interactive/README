@@ -1,6 +1,6 @@
 # Discover Old D'Hanis
 
-Discover. Learn. Preserve
+Discover. Learn. Preserve.
 
 Discover Old D'Hanis is an educational and immersive historical experience that invites you to explore the rich and diverse history of the real-life town of D'Hanis, Texas. Step back into the 19th century and embark on a captivating journey through a meticulously recreated town, where each corner tells a story of its past inhabitants.
 
